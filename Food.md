@@ -58,6 +58,7 @@
 
 ## Gyros
 
+**Chicken**
 -600g chicken 
 -4 deli kitchen flatbreads 
 -1 pepper (or 2 half’s) 
