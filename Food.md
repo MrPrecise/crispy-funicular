@@ -127,14 +127,14 @@
 - 10ml Soy Sauce
 
 **Method**
-*1. Dice 600g of chicken breast and season with the above ingredients before adding to a hot pan or wok. 
+1. Dice 600g of chicken breast and season with the above ingredients before adding to a hot pan or wok. 
 2. Cook the chicken until cooked. 
 3. Remove the chicken from the pan and to the same pan add half a bag of stir fry seasoning and let that cook. 
 4. Move the veg to the side and pour in two whisked eggs.
 5. Scramble the eggs slightly before adding cooled cooked rice and mix everything together with 60ml of light soy sauce. 
 6. Add your chicken back into the pan and let all the flavours combine. 
 7. Serve into 4 containers.
-8. Enjoy* 
+8. Enjoy 
 
 ## Chicken Chow Mein
 
@@ -182,5 +182,6 @@ Sesame seeds to garnish
 **Method**
 Preheat oven to  400℉ . Line an 12x17 inch rimmed baking sheet with parchment paper.
 
-Prepare Baking SheetSprinkle the baking sheet with the cheese so that there is a thin even layer of cheese . Next, line up the onion ring slices so that they are not overlapping but right next to one another. Brush tops of onion rings with olive oil . Then season the tops with salt , garlic powder and paprika . Bake for 18 minutes or until golden brown. Allow to cool for 5-10 minutes and then break apart to serve.
+Prepare Baking Sheet
+Sprinkle the baking sheet with the cheese so that there is a thin even layer of cheese . Next, line up the onion ring slices so that they are not overlapping but right next to one another. Brush tops of onion rings with olive oil . Then season the tops with salt , garlic powder and paprika . Bake for 18 minutes or until golden brown. Allow to cool for 5-10 minutes and then break apart to serve.
 
