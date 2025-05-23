@@ -59,21 +59,21 @@
 ## Gyros
 
 **Chicken**
--600g chicken 
--4 deli kitchen flatbreads 
--1 pepper (or 2 half’s) 
--1 red onion 
--200g frozen chips 
--1 tbsp garlic powder 
--1 tbsp peri peri spice 
+- 600g chicken 
+- 4 deli kitchen flatbreads 
+- 1 pepper (or 2 half’s) 
+- 1 red onion 
+- 200g frozen chips 
+- 1 tbsp garlic powder 
+- 1 tbsp peri peri spice 
 
 **Tzatziki** 
--60g yogurt 
--1/4 cucumber 
--1/2 lemon juiced 
--1 tsp olive oil 
--1 tbsp fresh dill 
--1 tsp garlic puree 
+- 60g yogurt 
+- 1/4 cucumber 
+- 1/2 lemon juiced 
+- 1 tsp olive oil 
+- 1 tbsp fresh dill 
+- 1 tsp garlic puree 
 
 ## Steak Bites & Mashed Potatoes
 **Garlic Steak Bites**
