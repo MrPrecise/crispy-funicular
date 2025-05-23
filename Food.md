@@ -154,6 +154,7 @@
 - Prawn crackers are optional 
 
 **Sauce** 
+
 50ml Low Sodium Soy Sauce
 4 tbsp Oyster Sauce 
 1 tsp rice wine vinegar 
@@ -181,8 +182,8 @@ Sesame seeds to garnish
 - Serve with Lazy Tzatziki
 
 **Method**
-Preheat oven to  400℉ . Line an 12x17 inch rimmed baking sheet with parchment paper.
 
+Preheat oven to  400℉ . Line an 12x17 inch rimmed baking sheet with parchment paper.
 Prepare Baking Sheet
 Sprinkle the baking sheet with the cheese so that there is a thin even layer of cheese . Next, line up the onion ring slices so that they are not overlapping but right next to one another. Brush tops of onion rings with olive oil . Then season the tops with salt , garlic powder and paprika . Bake for 18 minutes or until golden brown. Allow to cool for 5-10 minutes and then break apart to serve.
 
